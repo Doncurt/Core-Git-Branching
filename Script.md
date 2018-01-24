@@ -23,9 +23,9 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-Daquan met the Unicorn King who granted him magic powers.
-The end.
-
+Daquan met the Unicorn King who granted him magic powers, which were really advanced technology from his
+race of extra terrestrials. He then took his favorite zookeeper with him to play amongst the stars.
+- CONTINUED IN BIOLOGY OF THE STARS -
 ## Cast
 
 * Young Boy: Eliel
