@@ -9,7 +9,8 @@ Behind it, he finds a magical world of unicorns living in perfect piece and harm
 
 Daquan woke to the sound of traffic, the sky was gray.
 After his typical breakfast of toast and an egg he left for school.
-Normally Daquan would have walked down Bleaker street, but today there was construction and he decided to take Flanders behind the zoo.
+Normally Daquan would have walked down Bleaker street, but today there was construction and he decided to take Flanders behind the zoo.It coincidentally was the street that his favorite Zookeeper who specialized in
+elephant biology
 
 Being on time was not one of Daquan’s specialities today would prove to be no different.
 As he moved slowly.
